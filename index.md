@@ -1,1 +1,17 @@
-![Image](https://files.yande.re/image/9b6384dd49ade65bfc44087f8ac083a8/yande.re%20537401%20asian_clothes%20floc%20hatsune_miku%20vocaloid.jpg)
+## 游戏简历
+
+### PSN账号
+erednay
+
+### NS好友码
+SW-3499-1091-8125
+
+### 喜欢的游戏类型
+ - ARPG
+ - TPS
+ - MMO
+ - RougeLike！！
+
+### 现在在玩的游戏
+ - 最终幻想12黄道纪元(NS)
+ - 
